@@ -1,4 +1,4 @@
-<h1 align="center">
+tugujvxbn xcnnccn bvnm. z
   <br>
   <a href="#"><img src="https://user-images.githubusercontent.com/25837540/107883163-dbf70380-6f1f-11eb-856f-e69e733313e5.png" width="400px" alt="mubeng"></a>
 </h1>
